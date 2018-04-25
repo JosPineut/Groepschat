@@ -1,3 +1,2 @@
 HEY 
-HEY JOLAN HIER!
-  
+Joran is super goed in pannekoeken bakken
