@@ -2,5 +2,7 @@ HEY
 Joran is super goed in pannekoeken bakken
 Leugens
 
-BBQ doen? 
+BBQ doen?? 
+
+moh de examens zijn gedaan?!!
 
